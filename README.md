@@ -1,1 +1,1 @@
-# MinecraftXaliEditionPS3
+# Minecraft Xali Edition PS3
